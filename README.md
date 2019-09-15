@@ -3,7 +3,7 @@
 ## Bewustzijn
 Hoe werkt bewust zijn?
 
-De innerlijke stem die je gedachten verwoordt ratelt maar door als je geen sturing geeft. Dat bepaalt je wereld zonder dat je het doorhebt. Identificatie met die stem is onterecht en werkt verwarrend.
+De innerlijke stem die je gedachten verwoordt ratelt maar door als je geen sturing geeft. Dat bepaalt je wereld zonder dat je het doorhebt. Identificatie met die stem werkt verwarrend.
 
 Experimet:
 1. stel jezelf een spervuur van onafgemaakte vragen door elke formulering te onderbreken met de volgende vraag: wie heeft ..., waarom is ..., wanneer gaat ..., hoe komt het dat ..., etc
