@@ -8,17 +8,15 @@ Is een gedachte al echt als we hem nog niet innerlijk uitspraken?
 De innerlijke stem die je gedachten verwoordt ratelt maar door als je geen sturing aangeeft. Dat bepaalt je wereld.
 
 Experimet:
-1. stel jezelf vragen een spervuur van onafgemaakte vragen door elke formulering te onderbreken met de volgende vraag: wie heeft ..., waarom is ..., wanneer gaat ..., wie heeft ...
+1. stel jezelf vragen een spervuur van onafgemaakte vragen door elke formulering te onderbreken met de volgende vraag: wie heeft ..., waarom is ..., wanneer gaat ..., hoe komt het dat ..., etc
 2. vraag met dringende intentie als in: wie heeft gas laten branden?
 3. vraag met de blijde verwachting van een kind dat een ouder vraagt waarom de aarde rond is
 4. laat het een spervuur zijn van onafgemaakte vragen die over elkaar heen buitelen
 5. vergelijk hoe je je voelt na de oefening met ervoor
 
-Het groeiend gevoel van leven en blijdschap rechts van je hartstreek markeert je bewustzijnsgroei. 
-
 ## Waarschuwing
 
-Herhaalde uitvoering van dit experimen kan mogelijk leiden tot onbeschrijfelijke geluksgevoelens.
+Met herhaling van dit experiment riskeer je geluksgevoelens en verlies van spanningen.
 
 ## Dankzegging
 Mede mogelijk gemaakt door
