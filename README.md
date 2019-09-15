@@ -1,4 +1,4 @@
-# IkBenDieIkBen
+# Verstilling
 
 ## Bewustzijn
 Hoe werkt bewust zijn?
