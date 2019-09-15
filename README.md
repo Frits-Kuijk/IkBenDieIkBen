@@ -14,7 +14,7 @@ Experimet:
 
 ## Waarschuwing
 
-Herhaling van dit experiment riskeert geluksgevoelens en verlies van spanningen.
+Met herhaalde uitvoering van dit experiment riskeer je geluksgevoelens en verlies van spanningen.
 
 ## Dankzegging
 Mede mogelijk gemaakt door
