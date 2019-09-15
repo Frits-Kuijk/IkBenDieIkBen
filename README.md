@@ -3,9 +3,7 @@
 ## Bewustzijn
 Hoe werkt bewust zijn?
 
-Is een gedachte al echt als we hem nog niet innerlijk uitspraken?
-
-De innerlijke stem die je gedachten verwoordt ratelt maar door als je geen sturing geeft. Dat bepaalt je wereld.
+De innerlijke stem die je gedachten verwoordt ratelt maar door als je geen sturing geeft en bepaalt daarmee je wereld zonder dat je het doorhebt.
 
 Experimet:
 1. stel jezelf een spervuur van onafgemaakte vragen door elke formulering te onderbreken met de volgende vraag: wie heeft ..., waarom is ..., wanneer gaat ..., hoe komt het dat ..., etc
@@ -21,8 +19,8 @@ Herhaling van dit experiment riskeert geluksgevoelens en verlies van spanningen.
 ## Dankzegging
 Mede mogelijk gemaakt door
 1. Sri Ramana Maharshi - Wie ben ik
-2. Eckhart Tolle - Kracht van het Nu
+2. Eckhart Tolle - Nu
 3. Carlos Castaneda - Innerlijke dialoog
 4. Centrum voor Leven en Intuitie - energiestromen
 5. 5 Tibetaanse oefeninge - ontspanning en verstilling
-6. Een die schijnt door alles - onweerstaanbaar-om-niet-te-volgen aanwijzingen
+6. Een die schijnt door alles en iedereen - onweerstaanbaar-om-niet-te-volgen aanwijzingen
