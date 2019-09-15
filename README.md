@@ -7,7 +7,7 @@ De innerlijke stem die je gedachten verwoordt ratelt maar door als je geen sturi
 
 Experimet:
 1. stel jezelf een spervuur van onafgemaakte vragen door elke formulering te onderbreken met de volgende vraag: wie heeft ..., waarom is ..., wanneer gaat ..., hoe komt het dat ..., etc
-2. vraag met dringende intentie als in: wie heeft gas laten branden?
+2. vraag met dringende intentie als in: wie heeft het gas aan laten staan?
 3. vraag met de blijde verwachting van een kind dat een ouder vraagt waarom de aarde rond is
 4. laat het een spervuur zijn van onafgemaakte vragen die over elkaar heen buitelen
 5. vergelijk hoe je je voelt na de oefening met ervoor
