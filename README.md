@@ -34,6 +34,6 @@ Zo start de tovenarij met de overschrijding van de individuele tijdsdrempel voor
 Alles wordt mogelijk wanneer de innerlijke dialoog, die het verbood, zwijgt.
 Abide as the self in the self that rises from the spiritual heart, two finger-breaths right from the center of the chest.
 
-## Realisering en aansporingx
-Het wegvallen van je zorgen met het realiseren van mentale stilte geeft al een hele verlichting.
+## Realisering en aansporing
+Het wegvallen van je zorgen met het realiseren van mentale stilte geeft al een hele verlichting.<br>
 Wees stil en weet dat jij god bent.
