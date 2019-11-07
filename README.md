@@ -27,12 +27,12 @@ Mede mogelijk gemaakt door
 
 ## Analogie
 
-Mindfullness is in hier de kracht van het Nu ervaren.
-Alert mindfullness lijkt niets anders dan zen.
-Verblijf hier en nu stopt de innerlijke dialoog die je wereld creeert.
-Zo start de tovenarij met de overschrijding van de individuele tijdsdrempel voor de duur van innerljke stilte.
-Alles wordt mogelijk wanneer de innerlijke dialoog, die het verbood, zwijgt.
-Abide as the self in the self that rises from the spiritual heart, two finger-breaths right from the center of the chest.
+- Mindfullness is in hier de kracht van het Nu ervaren.
+- Alert mindfullness lijkt niets anders dan zen.
+- Verblijf hier en nu stopt de innerlijke dialoog die je wereld creeert.
+- Wanneer de innerlijke dialoog zwijgt wordt alles mogelijk.
+- Tovenarij begint met de overschrijding van de individuele tijdsdrempel voor de duur van innerljke stilte.
+- Abide as the self in the self that arises as a vibration in the spiritual heart, two finger-breaths right from the center of the chest.
 
 ## Realisering en aansporing
 Het wegvallen van je zorgen met het realiseren van mentale stilte geeft al een hele verlichting.<br>
